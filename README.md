@@ -6,6 +6,8 @@
 - 💯 I am Interested in Coding, 3d Modeling, and Music
 
 I'm a gatekeeper so I prob don't have many public repositories :p
+
 Thanks for checking me out :D
 <br><br>
+
 
